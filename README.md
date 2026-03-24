@@ -111,7 +111,7 @@ Total: Rs.200.00
 
 ## 👩‍💻 Author
 
-* Your Name
+HUNAR BHAYANA
 
 ---
 
